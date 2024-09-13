@@ -29,3 +29,4 @@ I am currently attending a master's program in Medialogy at Aalborg University, 
 
 ## 😄 Pronouns: ...
 - She/Her
+- They/Them
