@@ -21,9 +21,6 @@ In addition to tech, I enjoy:
 
 I am currently attending a master's program in Medialogy at Aalborg University, which I will finish in 2026.
 
-## 💞️ I’m looking to collaborate on ...
-(Feel free to mention any specific areas if you'd like, or we can leave this blank.)
-
 ## 📫 How to reach me ...
 - Email: [mjesp20@student.aau.dk](mailto:mjesp20@student.aau.dk)
 
